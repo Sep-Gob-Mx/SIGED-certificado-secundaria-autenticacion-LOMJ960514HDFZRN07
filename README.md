@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-LOMJ960514HDFZRN07
+LOMJ960514HDFZRN07
